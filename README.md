@@ -1,3 +1,3 @@
 # Hello-World
 github learning session 
-adding info abouy myseld blaa blaa blaa testing
+hello world this ya boi big ballz T he a real ass g 
